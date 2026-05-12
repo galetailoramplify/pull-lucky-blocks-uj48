@@ -1,4 +1,4 @@
-#  
+#  Experience pull lucky blocks like never before with no-ban pull lucky blocks Scripts, the #1 Script. Includes private server access and teleport for
 
 
 
